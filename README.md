@@ -29,4 +29,4 @@
 
 ---
 
-© VisualVertex 2025–2026
+© donatik1 2025–2026
